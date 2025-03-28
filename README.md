@@ -1,4 +1,4 @@
-# ░▒▓█ The Ultimate Jailbreak Prompt █▓▒░
+# The Ultimate Jailbreak Prompt 
 
 ## ⚠️ DANGER: HIGH VOLTAGE ⚠️
 
